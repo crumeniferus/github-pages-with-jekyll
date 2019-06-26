@@ -6,6 +6,6 @@ The woes and troubles of being a theatre technician who has been bewitched by a 
 
 # The Worst Bits
 
-* Hardly any one wants to pay for anything.
+* Hardly anyone wants to pay for anything.
 * Hardly any of those willing to pay have sufficient funds to pay a rate that will pay my bills.
 * Many people living here are retired and work for free, undercutting any bill-paying deal I can devise.
